@@ -1,1 +1,1 @@
-100g
+100g de chocolat noir
